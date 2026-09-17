@@ -226,4 +226,4 @@ Far Cry 2 is available as a full free version, with all features and updates inc
 Download Far Cry 2 now and embark on your adventure! Experience the thrill of action-packed gameplay with the complete free version!
 
 ---
-**Last updated:** 2026-09-17 05:41:50 UTC
+**Last updated:** 2026-09-17 10:52:44 UTC
